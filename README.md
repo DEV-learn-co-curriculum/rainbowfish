@@ -25,4 +25,4 @@ If only, if only the fish swam
 I always lose in go-fish. It's usually because I'm slow at responding.
 
 The fish said "let me tell you a tale...". It was over before it started. FIN.
-"You stink" said the crowd. 
+"You stink" said the crowd. Little did they know, this fish didn't have a nose.
