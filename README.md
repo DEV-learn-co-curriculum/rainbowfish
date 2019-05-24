@@ -22,4 +22,4 @@ Some times, at the end of an experiment, we learn something. This is not one of 
 
 If only, if only the fish swam
 
-I always lose in go-fish
+I always lose in go-fish. It's usually because I'm slow at responding.
