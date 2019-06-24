@@ -3,6 +3,7 @@ Rainbow fish, a violent, shapeshifting predator from nubunine. Known for imitati
 
 Once upon a time, in a fishtank far far away...
 
+There was a very violent but also beautiful raindbow fish named Irina...
 
 `yeet`
 
